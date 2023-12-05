@@ -9,5 +9,17 @@
 ![image](https://github.com/sahrul180304/Lab9Web/assets/115526901/8d36e93a-fb93-48b6-ba75-68b964e04647)
 
 
+![image](https://github.com/sahrul180304/Lab9Web/assets/115526901/3a544bfd-7e06-4a7b-b1f2-57a1b0592c8b)
+
+
+![image](https://github.com/sahrul180304/Lab9Web/assets/115526901/3e477f20-f4fc-4613-8734-dc8fcd61358a)
+
+
+![image](https://github.com/sahrul180304/Lab9Web/assets/115526901/d996b0aa-4565-4fe3-85c0-e564bb395ab7)
+
+
+
+
+
 
 
